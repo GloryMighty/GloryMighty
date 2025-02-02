@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Slava
-- 👀 I’m interested in Agentic AI application to real world problems 
+- 👀 I’m interested in Automations
 - 🌱 I’m currently learning langchain framework on python and javascript 
 - 💞️ I’m looking to collaborate on interesting Agentic AI solutions 
 - 📫 Reach me at: 
