@@ -5,7 +5,7 @@
 - 📫 Reach me at: 
    -   X: @allhopeisgo
    - TG: octob3rz
-- ⚡ Fun fact: I escaped Russia 7 days after the start of the war, then snatched some money from Georgian online-gambling project with my gangsters, in attempt to move technological progress forward, but was betrayed by virtually everybody.  
+- ⚡ Fun fact: I escaped Russia 7 days after the start of the war, moved to Georgia from where relocated to Turkey. 
 Now i'm floating around the wonderful city of Konstantinopol and trying to find a purpose in my life, which appears to be a technological progress in order to serve humanity. 
 
 <!---
