@@ -8,8 +8,7 @@
 - WhatsApp: + 90 535 676 58 99 
    -   X: @allhopeisgo
    - TG: octob3rz
-- ⚡ Fun fact: I escaped Russia 7 days after the start of the war, moved to Georgia from where relocated to Turkey. 
-Now i'm floating around the wonderful city of Konstantinopol and trying to find a purpose in my life, which appears to be a technological progress in order to serve humanity. 
+- ⚡ Fun fact: I'm just a human after all. 
 
 <!---
 GloryMighty/GloryMighty is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
